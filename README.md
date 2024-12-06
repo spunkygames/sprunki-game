@@ -1,6 +1,6 @@
 # Sprunki Game
 
-Sprunki Game is a fun and engaging online game. Explore the exciting world of Sprunki and discover unique challenges and creative possibilities. Play [Sprunki Game](https://spunkygame.substack.com/sprunki)
+Sprunki Game is a fun and engaging online game. Explore the exciting world of Sprunki and discover unique challenges and creative possibilities. Play [Sprunki Game substack](https://spunkygame.substack.com/sprunki)
 
 
 ---
@@ -17,7 +17,7 @@ Sprunki Game is a fun and engaging online game. Explore the exciting world of Sp
 
 ## What is Sprunki Game? <a name="what-is-sprunki-game"></a>
 
-Sprunki Game is a dynamic online game offering an entertaining and engaging experience.  Explore related content such as [Spunky Game](https://spunkygame.substack.com/spunky-game), [Esprunki](https://spunkygame.substack.com/esprunki), and [Spunky](https://spunkygame.substack.com/spunky).
+Sprunki Game is a dynamic online game offering an entertaining and engaging experience.  Explore related content such as [Spunky Game substack](https://spunkygame.substack.com/spunky-game), [Esprunki substack](https://spunkygame.substack.com/esprunki), and [Spunky substack](https://spunkygame.substack.com/spunky).
 
 
 ---
